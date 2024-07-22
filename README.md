@@ -1,5 +1,5 @@
 
-- 💞️ I’m looking to collaborate with Mnc's 
+- 
 - 📫 How to reach me - mchigaridarshana@gmail.com
 
 <!---
